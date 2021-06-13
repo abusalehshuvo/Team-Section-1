@@ -1,3 +1,3 @@
-# Team-Section-2
+# Team-Section-1
 
 - Class 35- Team Section
